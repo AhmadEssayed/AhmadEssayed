@@ -9,4 +9,4 @@ A life-long learning polymath
 
 +971 50 312 4274 - ahmadessayed@hotmail.com
 
-www.linkedin.com/in/ahmadessayed
+[LinkedIn] (https://www.linkedin.com/in/ahmadessayed)
